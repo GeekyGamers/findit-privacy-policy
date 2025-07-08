@@ -16,6 +16,6 @@ We do not share your data with any third-party services or companies.
 ## Changes to this Policy
 We may update this policy if features change. All changes will be reflected on this page.
 
-If you have any questions, contact us at: [your-email@example.com]
+If you have any questions, contact us at: [geekygamers2611@gmail.com]
 
 _Last updated: June 2025_
